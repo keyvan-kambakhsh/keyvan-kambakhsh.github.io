@@ -1,4 +1,3 @@
-# zeeka-fun.github.io
 
 is zeeka scam?
 
